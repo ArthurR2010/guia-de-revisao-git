@@ -1,4 +1,4 @@
 # Combinados da dupla
 
-Dia de estudo: terça-feira
+Dias de estudo: terça e quinta
 Horário: depois da aula
